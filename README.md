@@ -1,0 +1,2 @@
+# Shadowrocket
+最新免费共享小火箭账号/已购shadowrocket共享Apple ID，小火箭账号购买，美区小火箭，免费共享小火箭账号及已购Shadowrocket付费美区账号共享服务，提供稳定的美区小火箭账号购买渠道。我们专注于美区Apple ID和Shadowrocket账号的安全购买与共享，支持Shadowrocket正版已购账号，确保优质使用体验。无论您是需要免费账号还是可靠的付费美区小火箭账号，我们都能满足您的需求。
