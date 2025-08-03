@@ -1,17 +1,17 @@
-# 2025年7月最新免费共享小火箭账号及已购Shadowrocket美区共享Apple ID账号，小火箭账号购买，美区小火箭
+# 2025年8月最新免费共享小火箭账号及已购Shadowrocket美区共享Apple ID账号，小火箭账号购买，美区小火箭
 
 最新美区apple id共享小火箭/已购shadowrocket共享Apple ID，小火箭账号购买，美区小火箭，免费共享小火箭账号及已购Shadowrocket付费美区账号共享服务，提供稳定的美区小火箭账号购买渠道。我们专注于美区Apple ID和Shadowrocket账号的安全购买与共享，支持Shadowrocket正版已购账号，确保优质使用体验。无论您是需要免费账号还是可靠的付费美区小火箭账号，我们都能满足您的需求。
 
 [![更新频率](https://img.shields.io/badge/更新-每日-blue)](https://docs.applexp.com/free-accounts/Shadowrocket)  
-[![支持](https://img.shields.io/badge/支持-7x24小时自助购买-green)](https://juzixp.top/)  
-[![安全保障](https://img.shields.io/badge/安全-严格审核-brightgreen)](https://juzixp.top/)
+[![支持](https://img.shields.io/badge/支持-7x24小时自助购买-green)](https://juzixp.com/)  
+[![安全保障](https://img.shields.io/badge/安全-严格审核-brightgreen)](https://juzixp.com/)
 
 
 ## [【小火箭共享账号每日更新】](https://docs.applexp.com/free-accounts/Shadowrocket)
 
-#### 购买独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入购买】](https://juzixp.top/)
+#### 购买独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入购买】](https://juzixp.com/)
 
-#### 购买共享账号地址：[【 点击进入购买】](https://juzixp.top/buy/21)
+#### 购买共享账号地址：[【 点击进入购买】](https://juzixp.com/buy/21)
 
 ## 目录
 
@@ -44,8 +44,8 @@
 
 ## 购买渠道
 
-- [独享账号购买](https://juzixp.top/buy/15)：小火箭独享账号、苹果多国Apple ID等。  
-- [共享账号购买](https://juzixp.top/buy/21)：便捷的共享账号获取方式。  
+- [独享账号购买](https://juzixp.com/buy/15)：小火箭独享账号、苹果多国Apple ID等。  
+- [共享账号购买](https://juzixp.com/buy/21)：便捷的共享账号获取方式。  
 
 ---
 
